@@ -1,7 +1,7 @@
 # Staff List
 
 * Likit Preeyanon likit.pre@mahidol.edu room 726
-* Jareanporn Julchoo jareanporn.jul@mahidol.ac.th room 737
+* Jareanporn Julchoo jareanporn.jul@mahidol.ac.th room 737 approx 2 year
 * Adisak Nunnarumit adisak.nun@mahidol.edu room 316
 * Napatsakorn Pisalayon napatsakorn.pis@mahidol.ac.th room 215
 * Prasong Khaenam prasong.kha@mahidol.ac.th Room 727
