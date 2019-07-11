@@ -1,3 +1,3 @@
 # Staff List
 
-* Likit Preeyanon
+* Likit Preeyanon likit.pre@mahidol.edu
